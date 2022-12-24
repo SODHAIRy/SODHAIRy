@@ -1,4 +1,4 @@
-- I M NOT HACKER 10TH STUDTUNT 
+- I M NOT HACKER ONLY 
 - 
 - 
 - 👋 Hi, I’m @SODHAIRy
